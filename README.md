@@ -20,7 +20,7 @@
 - Desarrollos que exploren nuevas áreas en el campo de la informática y que permitan la investigación y desarrollo de nuevas tecnologías.
 - 
 - 📫 ¿Cómo contactarme?
-- Whatsapp - +52 55 31 33 04 67
+- Whatsapp - +52 55 29 30 09 93
 -  Hotmail - luis_linares75@hotmail.com
 -    Gmail - omeollincozcacuauhtli@gmail.com
 
